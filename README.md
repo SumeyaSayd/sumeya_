@@ -1,4 +1,4 @@
 # sumeya_
 First repository 
 
-I love food and traveling
+I love food, binge-watching shows, and traveling
